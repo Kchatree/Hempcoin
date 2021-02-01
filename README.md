@@ -1,0 +1,2 @@
+# Hempcoin
+Hempcoin Herb
